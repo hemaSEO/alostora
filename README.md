@@ -1,3 +1,4 @@
 # alostora
-الأسطورة الذهبية
-https://alostoraclean.com/
+
+
+المستقبل الذهبي [GitHub Pages](https://alostoraclean.com/).
