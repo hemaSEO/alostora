@@ -1,4 +1,4 @@
 # alostora
 
 
-المستقبل الذهبي [GitHub Pages](https://alostoraclean.com/).
+البيشـــــو [المستقبل الذهبي](https://alostoraclean.com/).
