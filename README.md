@@ -1,2 +1,3 @@
 # alostora
-السطورة الذهبية
+الأسطورة الذهبية
+https://alostoraclean.com/
